@@ -11,6 +11,7 @@
 - 1 sachê de molho de tomate
 - 200ml de água
 - Condimentos de preferência
+- Óleo
 
 
 
@@ -30,13 +31,7 @@
 
 
 
-
-
 ### E pronto! :stuck_out_tongue:
-
-
-
-
 
 
 
