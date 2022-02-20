@@ -4,6 +4,6 @@ Olá seja bem vindo ao meu livro de receitas :v:
 
 
 
-## Receitas:
+### Receitas:
 
 - Macarronada :spaghetti:
